@@ -35,7 +35,7 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me **abhinasdash143@gmail.com**
 
-- 📄 Know about me [My Resume](drive.google.com/file/d/1BwyXhbQz3ZYgYigVUVyX1kJCG168PDNj/view)
+- 📄 Know about me [My Resume](https://drive.google.com/file/d/1BwyXhbQz3ZYgYigVUVyX1kJCG168PDNj/view)
 
 - ⚡ Fun fact **I think I'm hacker ಠ_ಠ**
 
